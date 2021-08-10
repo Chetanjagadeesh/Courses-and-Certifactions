@@ -1,1 +1,1 @@
-# Courses-and-Certifictions
+# Courses-and-Certifications
